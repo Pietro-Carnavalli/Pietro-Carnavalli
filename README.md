@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de Pietro-Carnavalli 😁
+## Bem-vindo(a) ao perfil de Pietro Carnavalli 
 
  <div>
    <a href="https://github.com/Pietro-Carnavalli ">
